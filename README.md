@@ -1,6 +1,6 @@
 # README
 
-Amelia'a User Manual - A Brief Guide On How To Communicate Effectively With Me
+Amelia's User Manual - A Brief Guide On How To Communicate Effectively With Me
 
 ## What are your primary goals as a human being?
 - I want to understand people. What makes them tick? What do they need or want? How do they see the world and why might they have that point of view?
