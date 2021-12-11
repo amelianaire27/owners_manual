@@ -8,9 +8,9 @@ Amelia'a User Manual - A Brief Guide On How To Communicate Effectively With Me
 - I want to learn. I believe that I only have one chance to live and I want to make the most of that short time by learning whatever I can.
 
 ## What do you want us to know about your communication style?
-I communicate directly, and I've been told I can be blunt. 
-I also have a sense of humor and sometimes I try to ease tension by cracking jokes. 
-I tend to prefer small groups because I can become overstimulated and in large groups I typically stay quiet and observe.
+- I communicate directly, and I've been told I can be blunt. 
+- I also have a sense of humor and sometimes I try to ease tension by cracking jokes. 
+- I tend to prefer small groups because I can become overstimulated, and in large groups I typically stay quiet and observe. At parties you might find me in the kitchen (trying to help) or outside (to decompress).
 
 ## What are some useful things to know in advance about your style?
 - I have ADHD, so my brain works in a very peculiar way. It's kind of like a huge library with tons and tons of files, but nobody at the front desk to route things to the correct shelf. When a lot of input comes in all at once, things get jumbled or stashed wherever there's an empty space (which isn't always the best place). In some extreme cases I can freeze up if too much input happens simultaneously.
