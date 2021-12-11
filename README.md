@@ -13,7 +13,7 @@ Amelia's User Manual - A Brief Guide On How To Communicate Effectively With Me
 - I tend to prefer small groups because I can become overstimulated, and in large groups I typically stay quiet and observe. At parties you might find me in the kitchen (trying to help) or outside (to decompress).
 
 ## What are some useful things to know in advance about your style?
-- I have ADHD, so my brain works in a very peculiar way. It's kind of like a huge library with tons and tons of files, but nobody at the front desk to route things to the correct shelf. When a lot of input comes in all at once, things get jumbled or stashed wherever there's an empty space (which isn't always the best place). In some extreme cases I can freeze up if too much input happens simultaneously.
+- I have ADHD, so my brain works in a very peculiar way. It's kind of like a huge library with tons and tons of files, but there's nobody at the front desk to route things to the correct shelf. When a lot of input comes in all at once, things get jumbled or stashed wherever there's an empty space (which isn't always the best place). In some extreme cases I can freeze up if too much input happens simultaneously.
 - I prefer very direct communication. I am not very good at catching subtext or hidden meanings, so I prefer bluntness to subtlety.
 - I'm better with text communication than spoken communication. Writing or typing something out helps me organize my thoughts, whereas I have a tendency to blurt out whatever pops into my head when I'm speaking. I am also very tangent-prone in spoken conversation for the same reason.
 
